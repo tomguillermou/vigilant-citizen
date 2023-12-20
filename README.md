@@ -1,4 +1,4 @@
 # vigilant-citizen
 
 Vigilant citizen is a game that ...
-AERUYJKLLHLHHLHHH
+Vigilant citizen is available on Steam
